@@ -11,6 +11,7 @@ I print this using PETG, so its stronger and more durable
 I crochetted a hat and scarf for this penguin hehe
 
 Oh also its good also for being a night lamp
+
 <img width="314" height="423" alt="Screenshot 2026-06-25 at 09 24 43" src="https://github.com/user-attachments/assets/efe8d9bb-99c5-4366-9a73-5bb3ee825423" />
 
 
